@@ -4,4 +4,5 @@
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: Shadowhunters fan
 - 🤔 Take a look at my puppy
-https://github.com/GelyMqz/Recursos/blob/main/IMG_0222.JPG
+- ! [Xiyué](https://github.com/GelyMqz/Recursos/blob/main/IMG_0222.JPG) 
+
